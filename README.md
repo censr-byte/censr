@@ -24,8 +24,7 @@ Support / paid version (optional)
 
 Find it on my patreon (Also you can find a free quick guide there):
 
-https://www.patreon.com/posts/censr-full-150484927
-
+https://www.patreon.com/c/Censr
 
 
 
